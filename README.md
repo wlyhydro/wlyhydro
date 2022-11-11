@@ -1,1 +1,1 @@
-follow my ig @g0bothways ( う-´)づ︻╦̵̵̿╤── \(˚☐˚”)/
+ig @owthemm ( う-´)づ︻╦̵̵̿╤── \(˚☐˚”)/
